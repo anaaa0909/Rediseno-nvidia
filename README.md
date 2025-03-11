@@ -1,0 +1,1 @@
+# Rediseno-nvidia
